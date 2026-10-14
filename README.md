@@ -1,2 +1,2 @@
 Worst Linux user
-- Enjoyer of developing
+- Enjoyer of Developing
